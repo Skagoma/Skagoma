@@ -1,0 +1,1 @@
+- Hi I am Sacranie Kagoma, I am interested in data analytics and how to apply the findings in forecasting demand in supply chain management mainly of Pharmaceuticals. 
